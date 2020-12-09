@@ -6,6 +6,6 @@ It purely hosts visuals, conceptual section of product development including the
 Some of these projects are still under development.
 
 For any queries -
-Please reach out to **Vinay Saurabh**
-mail @ **vinaysmh@gmail.com**
+Please reach out to **Vinay Saurabh** -
+mail @ **vinaysmh@gmail.com** -
 or call @ **+91 9155534443**
